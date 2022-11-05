@@ -1,17 +1,17 @@
-#Praca:
+# Praca:
 Zajęcia więźniów:
 •	Wycinka drzew
 •	Sianokosy
 •	Noszenie towarów
 •	Wykwalifikowani pracowali jako lekarze albo inżynierowie
 •	Budowa dróg
-Stosunek do pracy
+# Stosunek do pracy
 •	Unikanie pracy – symulanci, samo okaleczający się
 Praca jako narzędzie degradacji człowieka
 •	Więźniowie postrzegani tyko przez pryzmat pracy
 •	Większość czasu poświęcony jest na pracy
 Wykańczająca praca wypełniająca większość dnia więźnia
-##Rozrywka:
+Rozrywka:
 Rozrywka a propaganda:
 •	Pilnowanie, by nie przemycane były wartości antykomunistyczne.
 Biblioteka:

@@ -21,7 +21,7 @@
  - Została ona z tego powodu aresztowana, jednak po nagłośnieniu sprawy oparła się na decyzji amerykańskiego Sądu Najwyższego który uznał segregację niezgodną z konstytucją USA.
  - W rozpoczętej w ten sposób walce o równouprawnienie czarnoskórych Martin Luther King opowiadał się za nieużywaniem przemocy i stosowaniem jedynie biernego oporu.
  - Z jego inicjatywy w południowych stanach USA, gdzie wciąż żywe pozostawały rasistowskie uprzedzenia organizowano bojkoty, przemarsze przez miasta oraz akcje celowego zjmowania miejsc zarezerwowanych dla białej ludności.
- - W sierpniu 1963 roku doszło do marszu na Waszyngton podczas którego Marthin Luther King wygłosił sławne już przemówienie, powtarzając słowa I have a dream (https://ihaveadreamspeech.us). Marsz okazał się przełomowy w walce o równouprawnienie i przeszedł do historii.
+ - W sierpniu 1963 roku doszło do marszu na Waszyngton podczas którego Marthin Luther King wygłosił sławne już przemówienie, powtarzając słowa "I have a dream..." (https://ihaveadreamspeech.us). Marsz okazał się przełomowy w walce o równouprawnienie i przeszedł do historii.
  - Pastor King otrzymał rok później Pokojową Nagrodę Nobla.
  - w 1964 roku uchwalono ustawę zapewniającą równy dostęp wszystkich obywateli do obiektów użyteczności publicznej oraz szkół, a także zakazujących dyskryminację ze strony pracodawców i związków zawodowych.
  - Malcolm X i Czarne Pantery Afroamerykanie na południu USA często spotykali się nie tylko z dyskryminacją i segregacją, ale również przy próbach oporu byli często brutalnie zastraszani a często nawet mordowani.

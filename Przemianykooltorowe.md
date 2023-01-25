@@ -31,3 +31,5 @@
  - Ostatecznie został on zastrzelony w 1965 roku w ramach porachunków wewnętrznych radykalnych ugrupowań.
  - Rok później powstała Partia Czarnych Panter, która współpracowała z organizacjami lewicowymi i za główny cel stawiała sobie działalność w dziedzinie samoobrony Afroamerykanów. Ugrupowanie zdobyło ogromną popularność i toczyło liczne walki z policją. 
 ## 6.Kościół Katolicki - Sobór Watykański II
+
+<test>
